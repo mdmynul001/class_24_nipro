@@ -1,1 +1,1 @@
-# class_24_nipro
+https://mdmynul001.github.io/class_24_nipro/
